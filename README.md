@@ -1,1 +1,1 @@
-# wireframe - Group 7 (Wei & Nick)
+# wireframe - Group 7 (Wei, Nick & Hung)
